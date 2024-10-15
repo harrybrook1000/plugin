@@ -1,1 +1,2 @@
 # plugin
+What is TikTok Pro Account. TikTok pro is an extended version of TikTok. It doesn't enable you to access more video editing features, however, you can get extra analytics features that help you to track the weekly or monthly performance of the video, and followers' gender, location, interest and more.you can also [tiktok plugin free download](https://tiktokmodapks.com/tiktok-plugin-apk/) for chrome .
